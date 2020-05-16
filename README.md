@@ -12,4 +12,6 @@ Twitter :
          
          I use my twitter account to follow some of the great inspirational
          peoples that i love and respects.
+         I Joined on twitter in December 2017
+         Link: https://twitter.com/abhilashsrom
          
