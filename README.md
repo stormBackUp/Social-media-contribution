@@ -22,4 +22,9 @@ Instagram:
          Joined Aug 2, 2018 12:47am
          Link: https://www.instagram.com/_broken_excalibur_/
 
+LinkedIn:
+         
+         I use my LinkedIn account to upload my details and make connections
+         Joined May 18, 2020
+         Link: https://www.linkedin.com/in/abhilash-tu-160630190/
          
