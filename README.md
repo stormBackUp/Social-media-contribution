@@ -48,3 +48,10 @@ Dribbble:
          other fantastic creations done by other peoples, and its help me a lot
          joined 18 june 2020
          Link: https://dribbble.com/Abhilash_Tu
+
+Freepik:
+         
+         I use Freepik to publish my works and get some inspirations from
+         other fantastic creations done by other peoples, and its help me a lot
+         joined 18 june 2020
+         Link: 
