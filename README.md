@@ -55,3 +55,11 @@ Freepik:
          other fantastic creations done by other peoples, and its help me a lot
          joined 18 june 2020
          Link: 
+
+Tumblr:
+         
+         I use Tumblr to link my instagram account to my google search result.
+         joined 8 july 2020
+         Link: https://www.tumblr.com/blog/abhilashtu
+
+Freepik:
